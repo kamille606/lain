@@ -1,2 +1,2 @@
 # lain
-keep study
+let all love lain
